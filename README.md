@@ -1,0 +1,1 @@
+# newmyartstock_customer
